@@ -18,7 +18,7 @@
   </a>
 </p>
 </div>
-### 🤝🏻 &nbsp;Connect with Me
+🤝🏻 &nbsp;Connect with Me
 
 
 <p align="center">
